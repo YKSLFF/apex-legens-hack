@@ -1,5 +1,3 @@
-Apex legends hack & hile & cheats 
-
 <h2><a href="https://memoryhackers.org/konular/apex-legends-hack-bananaland-chams-v1-0.245540">Apex legends Hack</a> & hile & cheats</h2>
 <p>
 Finally our apex legends hack updated for latest patch. As you wished we have added color settings. Now, you can even customize your team / enemy color without any issues.
